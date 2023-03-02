@@ -1,0 +1,10 @@
+Jhon Cardona 
+Nestor Parra
+Santiago Henao
+Michael Gonzalez
+Laura Camacho
+Shaquira Luque 
+Germán Guerrero
+Victor Lopez 
+Azziz Yunez 
+Sahara Palomino
